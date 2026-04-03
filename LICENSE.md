@@ -1,4 +1,4 @@
-
+noban Scripts for creatures of sonaria - spd and tele is the ultimate solution for creatures of sonaria players! Our scripts provide spd and tele, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your creatures of sonaria experience today!
 
 
 ---
